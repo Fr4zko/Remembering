@@ -1,0 +1,1 @@
+Estou relembrando a como fazer script, então esse é o começo de tudo.
